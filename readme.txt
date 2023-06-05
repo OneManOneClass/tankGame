@@ -1,0 +1,1 @@
+Žaisti per terminalą daug patogiau!
